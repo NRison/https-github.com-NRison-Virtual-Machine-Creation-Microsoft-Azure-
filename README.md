@@ -1,0 +1,1 @@
+# https-github.com-NRison-Virtual-Machine-Creation-Microsoft-Azure-
